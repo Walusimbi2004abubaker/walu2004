@@ -1,0 +1,1 @@
+am Walusimbi Abubaker, a passionate learner and developer with interest in programming, data analysis, and technology-driven problem solving. I enjoy building projects that enhance my skills and help me grow as a developer.
